@@ -4,7 +4,7 @@ Official Website:
 https://www.bowtie.com.hk
 
 Hiring:
-https://bowtie.bamboohr.com/jobs/
+https://career.bowtie.com.hk
 
 <hr />
 
